@@ -1,4 +1,4 @@
-# 
+# rare CCleaner para PC ferramentas é o melhor CCleaner para PC ferramentas com suporte a linha de comando e remocao de resíduos. Seguro, confiável e otimizado para máximo
 
 
 
